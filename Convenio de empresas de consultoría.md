@@ -2,6 +2,8 @@
 
 https://www.boe.es/diario_boe/txt.php?id=BOE-A-2018-3156
 
+https://www.boe.es/biblioteca_juridica/abrir_pdf.php?id=PUB-DT-2022-139
+
 Actividad económica: Servicios técnicos de ingeniería y otras actividades relacionas con el as
 
 Área de Consultoría, Desarrollo y sistemas.
